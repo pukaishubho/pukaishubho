@@ -4,7 +4,7 @@
 - ☢️ I’m currently working as a PhD student at UMass Lowell,🇺🇸
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other
-- 🥅 2022 Goals: Study and contribute to Opensource projects and Nuclear engneering.
+- 🥅 2022 Goals: Study and contribute to Opensource projects and Nuclear engineering.
 - ⚡ Fun fact: I love to travel
 
 
